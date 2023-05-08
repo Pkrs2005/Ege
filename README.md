@@ -3,7 +3,7 @@
 
 https://4ege.ru/index.php?do=download&id=19740
 
-Так же, на статград положим, потому что нахер надо учить лишнее.Вот вариант досрока егэ:
+Так же, на статград положим, потому что нахер надо учить лишнее. Вот вариант досрока егэ:
 
 https://ctege.info/ege-po-informatike/dosrochnyiy-ege-2023-po-informatike.html
 
